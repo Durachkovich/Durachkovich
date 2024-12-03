@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Durachkovich)0)))777
 - 👀 I’m interested in-|\/||
-- 🌱 I’m currently learning fvdgvdf
+- 🌱 I’m currently learning fvdguhjtyth
 - 💞️ I’m looking to collaborate on .pppbse
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
