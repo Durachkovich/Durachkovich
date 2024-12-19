@@ -2,7 +2,7 @@
 - 👀 I’m interested in-|\/||
 - 🌱 I’m currently learning fbgregeadf
 - 💞️ I’m looking to collaborate on .pppbse
-- 📫 How to reach me ...uyjhhntrgetg
+- 📫 How to reach me ...uytjnygdty
 - 😄 Pronouns: ...
 - ⚡ Fun fact: .
 <!--tdghhtrewgr
