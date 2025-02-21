@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Durachkovich)0)))777
 - 👀 I’m interested in-|\/||
 - 🌱 I’m currently learning nbgftfb
-- 💞️ I’m looking to collaborate on .,,kkunhrstdhydtyj
+- 💞️ I’m looking to collaborate on .,,yufmyfumkfyumk
 - 📫 How to reach me ...tyjnyethrh
 - 😄 Pronouns: ...
 - ⚡ Fun fact: .
